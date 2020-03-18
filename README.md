@@ -32,7 +32,7 @@
 
    ![开启成功](https://i.loli.net/2020/03/19/nh9GsmqZlu4JUyf.png)
 
-   ![满潜满精满等级](mr.assets/Az3GS1ZCMUFQBK2.png)
+   ![满潜满精满等级](https://i.loli.net/2020/03/19/Az3GS1ZCMUFQBK2.png)
 
    ![自定义修改干员](https://i.loli.net/2020/03/19/5SpxzwyBjh4efA9.png)
 
